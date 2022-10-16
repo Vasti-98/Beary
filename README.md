@@ -14,4 +14,4 @@ Our targe audience are college students who want to take control of their eating
 College students are known to have notorious eating habits and unhealthy lifestyle within their four years in college. 
 
 
-### 📍 How are we different: 
+### 📍 How is beary different: 
