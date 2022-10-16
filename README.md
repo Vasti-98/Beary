@@ -6,3 +6,12 @@
 
 ### 📍 About:
 A new way to approach healthy,  affordable, and sustainable eating
+
+### 📍 Audience:
+Our targe audience are college students who want to take control of their eating habits 
+
+### 📍 Problem: 
+College students are known to have notorious eating habits and unhealthy lifestyle within their four years in college. 
+
+
+### 📍 How are we different: 
